@@ -1,5 +1,5 @@
 ### Hi, I'm Tuan (aka Kylin) 👋
 
-DevOps / full-stack engineer.
+DevOps engineer/ Tech enthusiast.
 
 📫 Reach me at toanhtuan2662@gmail.com
